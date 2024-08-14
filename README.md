@@ -1,4 +1,4 @@
-### seja bem-vindo ao meu perfil
+### seja bem-vindo ao meu perfil ^w^
 
 meu nome é Maria Clara
 
